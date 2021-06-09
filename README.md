@@ -1,1 +1,1 @@
-# link.github.io
+https://link.almaftuchin.com
